@@ -1,2 +1,2 @@
-# World-s-Biggest-University.github.io/index.html
+# World-s-Biggest-University.github.io
 
